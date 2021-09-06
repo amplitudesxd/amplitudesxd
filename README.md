@@ -2,4 +2,3 @@
 
 - 🔭 I’m currently working on: Actova, Tap & Zarzul
 - 📫 Website and contacts: [amplitudes.me](https://amplitudes.me)
-- ⚡ Fun fact: I simp kura.
